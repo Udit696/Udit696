@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Udit696.
-- 👀 I’m interested in positive people's.
+- 👀 I’m interested in positive people.
 - 🌱 I’m currently learning how to be positive all the time.
-- 💞️ I’m looking to collaborate with negative thinking people's.
+- 💞️ I’m looking to collaborate with negative thinking people.
 - 📫 How to reach me ... Currently NA.
 
 <!---
